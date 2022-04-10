@@ -1,5 +1,5 @@
 👋 Hi, I’m Adrià!\
-👀 I’m interested in audio, music, nature...\
+👀 I’m interested in audio, music, nature, sport...\
 🌱 I never hesitate to learn new things.\
 📫 You can reach me through email or via LinkedIn!
 
